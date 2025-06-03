@@ -92,4 +92,4 @@ La página está optimizada para:
 
 ## 👥 Contacto
 
-Para más información, contacta a: contact@dokta.com
+Para más información, contacta a: bru94.sil@gmail.com
